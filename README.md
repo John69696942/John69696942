@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @John69696942
+- 👀 I’m interested in art
+- 🌱 I’m currently learning a new language
+-
